@@ -1,4 +1,4 @@
-#  
+#  Inteligente brainrot evolution scripts é o melhor brainrot evolution scripts com morte instantânea e invisibilidade. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
